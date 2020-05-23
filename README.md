@@ -1,4 +1,3 @@
-XiMiAV 海外永久域名<div><span style="color: red">
+### XiMiAV.COM 海外版永久域名 快速 干净 无广告
 <p>https://www.ximiav.com</p>
-<p>如果打不开此链接，请挂上VPN访问获取最新地址
-老司机防迷路请保存此页</p></span></div>
+<p>老司机防迷路请保存此页</p>
